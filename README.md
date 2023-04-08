@@ -1,2 +1,2 @@
 # thestupidstoned.github.io
-About Myself
+yeh meri website hai Ayush
